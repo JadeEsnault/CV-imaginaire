@@ -9,7 +9,7 @@
 
 ![pole nord](https://tf1pro.com/sites/default/files/thumbnails/image/elfe_1.jpg)
 
- ## Formation 
+## Formation 
 
  Bac de science en sorcellerie
 
@@ -17,7 +17,7 @@
 
  Diplômé en tant que sorcier 
 
- ## Centre d'intêret 
+## Centre d'intêret 
 
  Sport : aime le sky, le quiditch
 
